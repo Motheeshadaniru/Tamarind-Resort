@@ -1,4 +1,4 @@
-# Tamarind-Resort
+# Tamarind-Resort.com
 A hotel inspired. by village beauty
 
 Situated in Deegawapiya, 0.5 km from Deegawapiya Raja Maha Viharaya, Tamarind Resort -semi Luxury Suites features accommodation with a garden, free private parking, a shared lounge and a terrace. The property is located 20 km from Buddangala Raja maha viharaya, 68 km from Muhudumaha Viharaya and 68 km from Arugam Bay. The accommodation provides a 24-hour front desk, room service and free WiFi.
